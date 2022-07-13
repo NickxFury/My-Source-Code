@@ -1,7 +1,7 @@
 ## ഉവ്വാ ഉവ്വാ നോക്കി ഇരുന്നോ, ഇപ്പൊ കിട്ടും 🤤
 
 ### ഏതായാലും ഇവിടം വരെ വന്നത് അല്ലെ ഒന്ന് ജോയിൻ ചെയ്ത് പൊക്കോ 😌
-[![telegram badge](https://img.shields.io/badge/𝗚𝗥𝗢𝗨𝗣-30302f?style=for-the-badge&logo=telegram)](https://telegram.dog/MOVIECLUB_CHAT)
+[![telegram badge](https://img.shields.io/badge/𝗚𝗥𝗢𝗨𝗣-30302f?style=for-the-badge&logo=telegram)](https://telegram.dog/MovieClubOfficiall)
 [![telegram badge](https://img.shields.io/badge/𝗖𝗛𝗔𝗡𝗡𝗘𝗟-30302f?style=for-the-badge&logo=telegram)](https://telegram.dog/MovieClubOfficiall)
 ## മാമനൊടു ഒന്നും തോന്നല്ലേ മക്കളേ 😊
 
